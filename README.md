@@ -1,2 +1,6 @@
 # hello-world
 Github Told Me To Make This As My First Project So I Did
+
+HELLO HUMANS
+I LIKE TO DO HUMAN GENERAL ACTIVITIES AS WELL
+FUN EXCITEMENT FUN
